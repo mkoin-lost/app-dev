@@ -23,3 +23,11 @@ I deeply admire the overarching narrative and Luz’s determination to become a 
 | **Main Protagonist** | Luz Noceda |
 | **Setting** | The Boiling Isles (Demon Realm) |
 | **Key Themes** | Found family, self-acceptance, challenging conformity |
+
+---
+
+## 🌟 Favorite Characters
+* **Luz Noceda:** The optimistic human protagonist who learns magic through ancient glyphs.
+* **Eda Clawthorne:** The rebellious and powerful "Owl Lady" who becomes Luz's mentor.
+* **King:** A small, energetic demon determined to reclaim his title as the King of Demons.
+* **Amity Blight:** A top-student witch who grows from a strict rival into Luz's closest ally and partner.
